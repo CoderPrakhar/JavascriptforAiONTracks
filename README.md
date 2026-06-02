@@ -1,2 +1,2 @@
 a# JavascriptforAiONTrack
-aàa₹₹₹₹₹
+aàa₹₹₹
